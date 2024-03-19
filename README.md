@@ -7,9 +7,7 @@ This incredible experience equipped me with valuable skills, expanded my technic
 
 Related links -
 
-■Websites link- https://lnkd.in/dWQmHRmv
-
-■GitHub link - https://lnkd.in/deXSrE-C
+■Websites link- https://codecreatermunesh.github.io/The-Sparks-Foundation-Payment-Gateway-Project/
 
 ■Youtube link - https://youtu.be/7KUH_P9-JQw
 
